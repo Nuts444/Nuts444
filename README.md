@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nuts444
 - 👀 I’m interested in blockchain, nature and music.
 - 🌱 I’m currently learning Spanish, Layer-2 and Catalan insults. 
-- 💞️ I’m looking to collaborate on Layer-2 projects.  
+- 💞️ I’m looking to collaborate with BRC-20 Ecosystem and Layer 2s.  
 - 📫 How to reach me natalieyev@hotmail.com/ nataliey@foxwallet.com/ nataliey@web3.com
 
 <!---
